@@ -1,0 +1,1 @@
+# trying thermal imaging but on photos since i dont have a thermal camera
